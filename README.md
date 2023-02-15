@@ -1,2 +1,2 @@
 # Pit-Crew
-Funny that its a crew with only one person
+Funny that its called a crew but has only one person
